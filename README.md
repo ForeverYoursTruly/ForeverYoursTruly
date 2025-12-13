@@ -1,6 +1,5 @@
-#    -  `` remaking this soon! on wip. `` .  |   ▶︎ •၊၊||၊|။||||။‌‌‌‌‌၊|• 0:10     
-
- 
+#    -  `` remaking this soon! Heavy WIP.  `` .  |   ▶︎ •၊၊||၊|။||||။‌‌‌‌‌၊|• 0:10     
+{ follow spam account! , if unawanted block. Check out also my Links! }
 
     
 
