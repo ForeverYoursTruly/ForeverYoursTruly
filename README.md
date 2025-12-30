@@ -2,8 +2,7 @@
  .                                                                                |   ▶︎ •၊၊||၊|။||||။‌‌‌‌‌၊|• 0:10     
 
     
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31nevld7gnv2xxppqld4wqu4bfai&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=true&profanity=false&bar_color_cover=true&bar_color=53b14f)](https://spotify-github-profile.kittinanx.com/api/view?uid=31nevld7gnv2xxppqld4wqu4bfai&redirect=true)
-
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31nevld7gnv2xxppqld4wqu4bfai&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=true&profanity=true&bar_color_cover=true&bar_color=53b14f)](https://spotify-github-profile.kittinanx.com/api/view?uid=31nevld7gnv2xxppqld4wqu4bfai&redirect=true)
 
 
 
